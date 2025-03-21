@@ -1,0 +1,1 @@
+My First Portfolio Containing Projects and things that i've learned over the past 3 days of starting this bootcamp
